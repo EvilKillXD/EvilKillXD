@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do EvilKillXD 😁
+## :boom: Bem-vindo(a) ao perfil do EvilKillXD :boom:
 
  <div>
    <a href="https://github.com/EvilKillXD">
